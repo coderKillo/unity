@@ -5,3 +5,10 @@ unity course link: https://www.udemy.com/course/graphic-design-masterclass-every
 ## Resources 
 
 ![Alt](resource/Font-Styles-Guide.jpg)
+
+![Alt](resource/TheAnatomyofTypography-Poster-01.jpg)
+
+
+
+
+
